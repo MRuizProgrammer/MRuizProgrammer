@@ -1,1 +1,3 @@
-- 👋 Hi, I’m @MRuizProgrammer
+- 👋 Hi, I’m @MRuizProgrammer.
+- +55 (19)99171-0423
+- marcioruiz@mail.com
